@@ -1,11 +1,19 @@
 #DOWNLOAD "Btd Battles" A P K [MOD] premium latest version Unlocked {random_text} 
 
 
-<div align="center">
+[<div align="center">
 <h3>DOWNLOAD 1 >>> <a href="https://miumiu.web.app/data=Btd Battles">Btd Battles</a></h3><br>
 
 <h3>DOWNLOAD 2 >>> <a href="https://miumiu.web.app/data=Btd Battles">Btd Battles DOWNLOAD</a></h3>
+</div>](https://getmod1.web.app/?judule=
+
+
+<div align="center">
+<h3>DOWNLOAD 1 >>> <a href="https://getmod1.web.app/?judule=Btd Battles">Btd Battles</a></h3><br>
+
+<h3>DOWNLOAD 2 >>> <a href="https://getmod1.web.app/?judule=Btd Battles">Btd Battles DOWNLOAD</a></h3>
 </div>
+)
 
 
 ----------------------------------------------------------
